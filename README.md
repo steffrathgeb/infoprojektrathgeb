@@ -1,2 +1,1 @@
-# infoprojektrathgeb
-infoprojekt_2.Klassse
+school projekt ft. ad7 aka. also knownas daProfiOrProf
